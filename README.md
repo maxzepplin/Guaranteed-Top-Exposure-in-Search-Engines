@@ -17,7 +17,7 @@ enabling us to go-even further!
 
 Give your website a top 10 SEO search listing in over 1000+ search engines and 'About' us and 'Who is' directories!
 
-[youtube id=TvKT99XTc_g width=640 height=390 ]
+http://www.youtube.com/watch?v=TvKT99XTc_g&feature=player_embedded
 
   Guaranteed Top 10 Listing
 	Includes 1000+ Main directories
