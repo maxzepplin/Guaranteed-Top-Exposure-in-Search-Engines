@@ -17,8 +17,7 @@ enabling us to go-even further!
 
 Give your website a top 10 SEO search listing in over 1000+ search engines and 'About' us and 'Who is' directories!
 
-http://www.youtube.com/watch?v=TvKT99XTc_g&feature=player_embedded
-
+http://www.youtube.com/watch?v=TvKT99XTc_g
   Guaranteed Top 10 Listing
 	Includes 1000+ Main directories
 	250 Million Searches Per Month
